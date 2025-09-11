@@ -1,2 +1,1 @@
-# 5gee-privacy-policy
-5GEE ì•± ê°œì¸ì •ë³´ì²˜ë¦¬ë°©ì¹¨
+# 5GEE °³ÀÎÁ¤º¸Ã³¸®¹æÄ§ 
